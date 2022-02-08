@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alienHacker-22
 - 👀 I’m interested in Hacking stalkers! NOT YOU :)
-- 🌱 My current hack target is O***P S*M
+- 🌱 My current hack target is Oooo WaasUppp Yessss RM
 - 📫 How to reach me 432-606-XXXX (Only VoIP calls) 
 
 <!---
