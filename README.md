@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alienHacker-22
 - 👀 I’m interested in Hacking stalkers! NOT YOU :)
 - 🌱 My current hack target is Oooo WaasUppp Yessss RM
-- 📫 How to reach me 432-606-XXXX (Only VoIP calls) 
+- 📫 How to reach me 432-606-47XX (Only VoIP calls) 
 
 <!---
 alienHacker-22/alienHacker-22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
